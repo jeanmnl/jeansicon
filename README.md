@@ -1,2 +1,0 @@
-# jeansincon
-Jean Manuel Icons
